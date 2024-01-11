@@ -7,7 +7,7 @@
 
 💞️ I’m looking to collaborate on innovative web projects that challenge and expand my coding abilities. If you have an exciting idea or need assistance with a project, feel free to reach out!
 
-📫 How to reach me: You can contact me through direct messages on my GitHub profile, or you can email me at [your-email@example.com].
+📫 How to reach me: You can contact me through direct messages on my GitHub profile, or you can email me at nowcoding6@gmail.com.
 
 😄 Pronouns: He/Him
 
